@@ -259,6 +259,30 @@ My name is Vania and I'd like to join your team :)
 ![happyCat](gif/happyCat.gif)
 -----------------------------------------------------------------
 
+
+## Hi Everyone!
+Let the party start!
+Igor K
+
+
 ## Hello, kottans ^_^
 ![superCat](gif/superCat.gif)
+
+
 -----------------------------------------------------------------
+
+## Hello everybody, I'm really satisfied to be here. Separately thank =^.^= for that opportunity!!!
+![gif](gif/giphy.gif)
+
+-----------------------------------------------------------------
+
+-----------------------------------------------------------------
+
+## Hello there, kottans :hugging_face:
+I'm Michail and I'm freaking curious about the outcome of your project for myself. 
+Have fun and be :cat:
+
+![curious cat](https://i.giphy.com/media/5i7umUqAOYYEw/giphy.webp)
+
+-----------------------------------------------------------------
+
